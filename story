@@ -1,0 +1,1 @@
+There was a monkey and a crocodile who were good friends.
